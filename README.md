@@ -1,0 +1,4 @@
+Uptown-Poochie
+==============
+
+xury Designer Dog Clothing, Accessories, Designer Dog Carriers,and Cats Too  Accessories For The Very Chic Dog  About Our Business  Welcome to Uptown Poochie, where we strive to keep you and your little poochie up to date with the latest trends and hottest pet fashions and accessories! We are located in beautiful sunny Miami Florida, the mecca capital for fashion, fun and celebrities. We are searching everyday for unique and exciting poochie products so you can rest assure your pet will be wearing chic, hip and at times fun pet apparel - and we only settle for the highest quality products.  Our designers come from all around the world.
